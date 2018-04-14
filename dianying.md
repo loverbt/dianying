@@ -1,4 +1,4 @@
-## 色即是空
+## 色即是空 韩国
 
 ### 种子：http://bbs.btfx.net/upload/attach/000/063/525e03ab40fc9b4733ebb76441f31625.torrent
 
