@@ -1,6 +1,6 @@
 ## 唐人街探案2
 
-## 种子：http://bbs.btfx.net/upload/attach/000/064/1c688560c291f8bf6cc991f407cf5b1a.torrent
+### 种子：http://bbs.btfx.net/upload/attach/000/064/1c688560c291f8bf6cc991f407cf5b1a.torrent
 
 
 
